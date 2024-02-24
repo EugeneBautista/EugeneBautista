@@ -9,7 +9,7 @@ student and I also dislike Physics.
 
 ### 👷 Check out what I'm currently working on
 
-- nothing at the moment.
+- Nothing at the moment.
 
 ### 🌱 My latest projects
 
